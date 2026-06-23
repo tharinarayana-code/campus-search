@@ -1,1 +1,0 @@
-# telangana-colleges-portal
